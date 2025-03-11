@@ -1,0 +1,1 @@
+# DeepSeek-R1-AI-25-Real-World-Projects-in-AI-for-Beginners
